@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Cees
-- 👀 I’m interested in coding (duhh), i like creating small 1 day projects in my free time and complex system profesionally.
+- 👀 I’m interested in coding (duhh), i like creating small 1 day projects in my free time and complex system professionally.
 - 🌱 I’m currently learning everything that i find intresting.
 - 📫 How to reach me cees9000@gmail.com
 
